@@ -69,7 +69,7 @@ If you have any questions regarding this Privacy Policy, please contact:
 
 **Developer:** Bhanu Kumar
 
-Email: your-email@example.com
+Email: bhanukumar474@gmail.com
 
 ---
 
